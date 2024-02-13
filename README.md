@@ -8,7 +8,7 @@ My interests:
 
 Get in touch:
 - ✉️ Email: damirabd879@gmail.com
-- 💼 LinkedIn: [linkedin.com/in/yourusernam](https://www.linkedin.com/in/damir-abdullayev/)
+- 💼 LinkedIn: [damiresz](https://www.linkedin.com/in/damir-abdullayev/)
 - 🐦 Instagram: @damiresz
 
 Profile Status:
